@@ -1,2 +1,0 @@
-# jiuri
-jiuriniyaonuluzhnequdediyi
